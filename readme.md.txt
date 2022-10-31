@@ -1,0 +1,1 @@
+tinggal buka yang homework_m_rizki_surya_darmawan_gumai dan scriptnya adalah The_Abyss.txt
